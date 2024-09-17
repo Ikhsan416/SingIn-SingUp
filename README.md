@@ -3,9 +3,9 @@ _______________________________
 |
 |
 |
-| Terimakasih Telah Kemari 😋
+| Terimakasih
 |
 |
 |
 _______________________________
-Instagram : @hsanzxx
+Instagram : @ykhsann
